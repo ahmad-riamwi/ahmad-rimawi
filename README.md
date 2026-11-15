@@ -8,8 +8,7 @@
 
 🚀 Interested in building projects, exploring new technologies, and gaining practical experience.
 
-### 📂 My Projects
-I'm currently working on academic and personal projects. Stay tuned!
+
 
 ### 📫 Connect With Me
 
